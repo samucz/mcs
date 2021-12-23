@@ -1,11 +1,10 @@
 # mcs
-MC HECKY ZLATO
-klikni na code dej download rar 
-jdi v počítači do %appdata%
-.minecrfat 
+click on code dej download rar
+go to% appdata% on your computer
+.minecrfat
 version
-tam to jebni
-v launcheru najdi sigma5
-zapni
-nejlepší je Jello
-a hotovo zlato
+there it is fucking
+find sigma5 in the launcher
+turn on
+the best is Jello
+and done honey
